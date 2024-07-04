@@ -1,1 +1,1 @@
-# PRAYAS
+# IIIT Allahabad NGO
